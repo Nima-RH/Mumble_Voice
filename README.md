@@ -19,4 +19,4 @@
 # Made By Nima#8585 ❤️
 
 # 
-[![Watch the video]](https://s6.uupload.ir/filelink/80760725f8ed13c2f6382de7dac2590f_226baa3137/2022-05-13_01-21-52_z7gc.mp4)\
+[![asciicast](https://asciinema.org/a/113463.png)](https://asciinema.org/a/113463)

@@ -19,4 +19,4 @@
 # Made By Nima#8585 ❤️
 
 # 
-<a href="https://uupload.ir/view/2022-05-13_01-21-52_z7gc.mp4/" target="_blank"><img src="https://s6.uupload.ir/css/images/udl6.png" border="0" alt="دانلود فایل با لینک مستقیم" /></a>
+<a href="https://s6.uupload.ir/filelink/80760725f8ed13c2f6382de7dac2590f_226baa3137/2022-05-13_01-21-52_z7gc.mp4">

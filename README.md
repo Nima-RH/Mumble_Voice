@@ -20,5 +20,4 @@
 
 
 # Photos ✅
-![Uploading Screenshot (3632).png…]()
-![Uploading Screenshot (3633).png…]()
+<a href="https://uupload.ir/" target="_blank"><img src="https://s6.uupload.ir/files/screenshot_(3632)_4zfm.png" border="0"/></a>
